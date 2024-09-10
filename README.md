@@ -1,4 +1,4 @@
-# Bem-vindo ao meu perfil! :smiley
+# Bem-vindo ao meu perfil! 🩹
 - Meu nome é Otávio
 - Sou estudante da 1º série do Ensino Médio
 - Estou interessado(a) nas áreas de esportes, livros, internet, etc;
